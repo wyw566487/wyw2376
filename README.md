@@ -1,1 +1,1 @@
-There is no thing there.
+There is nothing there.
